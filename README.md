@@ -1,2 +1,2 @@
-# kokuhaku.html
-ini script buat nembak gebetan ceritanya
+# buat lo kalo mau nembak cewe silahkan
+jangan sampe di tolak ya wwkwk
